@@ -4,7 +4,6 @@ CDAC ACTS PUNE PG-DAC 2019 Assignment
 ## CDAC Journey 
 #### Blog: https://cdacactspgdac.blogspot.com  
 #### Youtube https://www.youtube.com/watch?v=NW1zEa1XKtU
-#### Instagram www.instagram.com/vaibhavkurkute
 
 
 ## Update (2020)
